@@ -1,4 +1,8 @@
-### Hi !! People 👋
+### Hola , como estan? 👋
+
+Les dejo mi QR que van a ver mi portafolio, estoy en crecimiento asi que tenganme paciencia.
+
+Que tengan un bendecido dia!😄
 
 <!--
 **pabloperez293/pabloperez293** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
