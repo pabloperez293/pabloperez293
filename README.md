@@ -1,6 +1,6 @@
 ### Hola , como estan? 👋
 
-Les dejo mi QR que van a ver mi portafolio, estoy en crecimiento asi que tenganme paciencia.
+Les dejo mi QR en el cual se encuentra mi portafolio, estoy en constante crecimiento todos los dias, asi que tenganme paciencia.
 
 Que tengan un bendecido dia!😄
 
